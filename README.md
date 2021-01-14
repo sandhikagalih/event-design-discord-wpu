@@ -140,3 +140,26 @@
 22. **Bambang**
   
   [https://www.figma.com/file/COzKp3tlsBv6zwVUy3z6zL/CodeTalker-Code-and-Livestream-with-Everyone?node-id=84%3A0]
+
+  <br>
+
+## HASIL SELEKSI TAHAP 2 & 3
+1. **irfanvrn**
+  [https://www.figma.com/file/YXQVZHcLpmjFhQe2YpZrcm/Design-Lomba-Pak-Dhika?node-id=1%3A2]
+  <br>
+
+2. **DevPad 🌠** 
+  [https://www.figma.com/file/7HeiBL7uVwIDB3iCX0IfEv/Web-design-Happy-programming-year?node-id=0%3A1]
+  <br>
+
+3. **Syaufy**
+  [https://www.figma.com/file/LXj5Emdq3gj5bNBHYcf1LP/Lomba-Web-Design-%E2%80%94-WPU?node-id=0%3A1]
+  <br>
+   
+4. **fadriapr**
+  [https://xd.adobe.com/view/6724f577-5719-4946-b97f-53d5f52ce3a0-3277/]
+  <br>
+
+5. **Andre Rio**
+  [https://www.figma.com/file/rIw8rykfMa3FWCksdOU5C2/Landing-page-Xample-Portfolio]
+  <br>
