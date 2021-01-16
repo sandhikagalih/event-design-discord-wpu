@@ -163,3 +163,8 @@
 5. **Andre Rio**
   [https://www.figma.com/file/rIw8rykfMa3FWCksdOU5C2/Landing-page-Xample-Portfolio]
   <br>
+
+---
+
+## VOTE
+[https://strawpoll.com/zq7gg7c3q]
